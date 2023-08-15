@@ -11,6 +11,5 @@ Gosto muito de conversar com meus amigo e familiares apesar que não sou muito d
  Meus pais são um de brasilia que é minha mãe,meu pai é do Rio de janeiro tenho pouco convivio com ele mais com minha mãe e o contrario a gente conversar levo ela nas consultas do medico porquê tem um poblema com seu pulão,
  mais ela e um ótima pessoa e mãe vovozinha pro meus subrinhos que tanto ama ela, é minha irmã e mais velha do que eu nós somos em três um deles també nao mora com a gente.
  
- sobre o trabaho e formataçao e montagem digo que é free lancer ainda estou em busca de aprimoração neste ramo desevevoldor e estou me esfoçando ao maxímo 
- pra entender tudo sobre a linguagem tem coisa que pego rapido e outras não neste meio termo to quebrando a cabeça até chegar no fim a gradeço aos meu mentor profressor do curso Jairo e meus familiares.
+ __sobre o trabaho e formataçao e montagem digo que é free lancer ainda estou em busca de aprimoração neste ramo desevevoldor e estou me esfoçando ao maxímo pra entender tudo sobre a linguagem tem coisa que pego rapido e outras não neste meio termo to quebrando a cabeça até chegar no fim a gradeço aos meu mentor profressor do curso Jairo e meus familiares.__
  
