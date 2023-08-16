@@ -3,7 +3,7 @@
  
 **Anderson Gonçalves Ferreia nascido no estado Distrito Federal DF.**
  
-## Sou estandante de desevevoldor de aplicativo para <em>Android na 102 da W3 sul perto da rodoviraida do plano pilito
+## Sou estandante de desenvevoldor de aplicativo para Android na 102 da W3 sul perto da rodoviraida do plano pilito
 ,neste curso estou gostando da forma que estou aparendo sobre programar. *
 mais voltando ao assunto sou uma pessoa muito tranquilo tenho 38 ano nascido em 1986 de Agosto dia 31 gosto tudo de conversar de aprender bom algumas pessoa  dizem que tenho jeito de ser chato.
 ### Porém gosto de do meus subrinho que tem 14 anos e outro 08 a gente vive conversando sobre jogos montagem de computdado e configuração do pcs,###
