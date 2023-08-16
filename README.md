@@ -2,7 +2,7 @@
 
 Biografia sobre a minha vida
 
-##Anderson Gonçalves Ferreira nascido no estado Distrito Federal DF.##
+*Anderson Gonçalves Ferreira nascido no estado Distrito Federal DF.*
 
   **Sou estudante de desenvolver de aplicativo para Andrade na 102 da W₃ sul perto dá rodo vira ida do plano piloto
 neste curso estou gostando da forma que estou aprendo sobre programar. Mais voltando ao assunto sou uma pessoa muito tranquilo tenho 38 ano nascido em 1986 de agosto dia 31 gosto tudo de conversar de aprender bom algumas pessoas dizem que tenho jeito de ser chato.**
