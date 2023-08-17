@@ -1,6 +1,4 @@
-
-
-[^1]: Biografia sobre a minha vida
+ Biografia sobre a minha vida.
 
 *Anderson Gonçalves Ferreira nascido no estado Distrito Federal DF.*
 
